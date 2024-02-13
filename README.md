@@ -4,3 +4,5 @@
 🔭 - As a foodie, I love to mix food and code (even if I haven't found a way yet)
   
 🤬 - I would like to make cryptocurrency ethical one day
+
+🧑‍🍳 - I would like to own my own restaurant one day
