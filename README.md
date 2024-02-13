@@ -1,5 +1,5 @@
 ## Hello there 👽
-😎 - And me, petitebetterave or Jules, developper, bartender, mixologist and passionate cook from Paris, France
+😎 - And me, petitebetterave or Jules, developper, bartending newbie , and passionate cook from Paris, France
   
 🔭 - As a foodie, I love to mix food and code (even if I haven't found a way yet)
   
